@@ -1,3 +1,3 @@
-Manuel José Mariano Care Poo
-Gerson Sebastian Andrade Meza
+Manuel José Mariano Care Poo<br/>
+Gerson Sebastian Andrade Meza<br/>
 Geovanni Leandro Curguan Duamante
